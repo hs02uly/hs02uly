@@ -1,1 +1,2 @@
-# About UMEBOSHIKING(Hs02uly)
+# About Hs02uly
+こんにちは。最近はなんかの資格取ろうかなーと考えてます(資格殆ど持ってない)
